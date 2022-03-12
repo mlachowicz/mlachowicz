@@ -1,3 +1,1 @@
-Born 1985. Interested in photojournalism and documentary photography. Since 2009, as a freelancer published in various local newspapers in Upper Silesia, as well as in countrywide specialist magazines, international web portals and books. His work appears in Frankfurter Allgemeine Zeitung, Rheinische Post, Harvard Business Review, Vice, Wprost and Polska The Times Dziennik Zachodni, among others. His work has been exhibited in Poland, Czech Republic, Slovakia and Norway. Participant of both Polish and international workshops and photography projects.
 
-Admirer of socially engaged photojournalism and the work of artists such as Ernst Haas, Saul Leiter, Antonín Kratochvíl or Hunter S. Thompson.
